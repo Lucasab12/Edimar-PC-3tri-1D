@@ -1,3 +1,3 @@
 # Edimar-PC-3tri-1D
-Lucas Abraão n16 &amp; Cauã de Matos n4
-
+NOME: LUCAS ABRAÃO  N:16
+NOME: CAUÃ DE MATOS SANTOS N:04
